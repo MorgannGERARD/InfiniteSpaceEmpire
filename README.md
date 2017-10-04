@@ -1,0 +1,2 @@
+# InfiniteSpaceEmpire
+Best game ever!
